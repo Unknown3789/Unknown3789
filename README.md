@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Unknown3789
+- 👀 I’m interested in Programming and all things IT!
+- 🌱 I’m currently starting my Bachelor in IT.
+- 💞️ I’m am new to collaboration, but keen to be involved in something! 
